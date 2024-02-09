@@ -20,6 +20,9 @@ We provide various IT services globally, helping businesses succeed with the lat
 
 🌐 [Skyline Infosys Website](https://www.skylineinfosys.com)
 📧 [Email Us](mailto:info@skylineinfosys.com)
-📱 [LinkedIn](https://www.linkedin.com/company/skyline-infosys)
+👍 [Facebook](https://www.facebook.com/skylineinfosys)
+📸 [Instagram](https://www.instagram.com/skyline_infosys/)
+🔗 [LinkedIn](https://www.linkedin.com/company/skylineinfosys/)
+🎥 [YouTube](https://www.youtube.com/channel/UCGoXxHlahdWs4eyDnw1C1gA)
 
 Let's shape the future together! 🚀
